@@ -26,10 +26,10 @@
  
 **#11:** If any of the above rules are violated then staff reserves the right to take the necessary action against the offender.
 
-**#12:** **Follow**: - <https://discordapp.com/terms&> <https://discordapp.com/guidelines>
+**#12:** **Follow**: - Discord [Terms of Service](https://dis.gd/tos) and [Community Guidelines](https://dis.gd/guidelines).
  
-**#13:** **Ban Appeal**: <http://bit.ly/BANappealUjjwal>
+**#13:** **Ban Appeal**: [Click here to appeal](http://bit.ly/BANappealUjjwal).
  
-**#14:** **Moderation Guidelines**: <http://bit.ly/MODactionUjjwal>
+**#14:** **Moderation Guidelines**: [Click here to know more](http://bit.ly/MODactionUjjwal).
 
 > *Everything doesn't need to be mentioned in rules you need to use common sense as well. We expect all the members to be humble and respectful towards each other as well as welcoming towards the new members.*
